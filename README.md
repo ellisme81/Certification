@@ -1,5 +1,5 @@
 # Certification
-Certification. - FYI, *I DON'T CODE* ANYMORE AND I LOVE TECHNOLOGY!
+Certification. - FYI,*I DON'T CODE* anymore AND I LOVE Technology!
 
 
 
@@ -27,18 +27,20 @@ Blockchain Architecture Training. -- coming soon
 
 
 
-Cooking Certificates if you're interested. I'm a Michelin star * Chef. :)
+Cooking Certificates if you're interested. I'm a Michelin star * -- ONE star Michelin Chef only :)
 
 
 
-And I listen to the music too, incase you want to follow me on YouTube Music. 
+
+And I listen to the music too, in case you want to follow me on YouTube Music. 
 
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
 
 
 
-Oh perhaps my new hobby is riding horse I'm working on getting my equestrian skill certified ;)
+
+Oh my new hobby is riding horse and I'm working on getting my basic equestrian skill certified ;)
 
 https://www.pbrcride.com/ 
 
