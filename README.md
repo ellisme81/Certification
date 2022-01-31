@@ -33,7 +33,7 @@ Many more Business and Finance Certification - Can be provided upon request.
 
 
 
-Cooking Certificates if you're interested. I'm a Michelin * starred Chef -- ONE star only 👩‍🍳
+Cooking Certificates if you're interested. I'm a Michelin * starred Chef -- ONE star only, cont improvement ... 👩‍🍳
 
 
 
