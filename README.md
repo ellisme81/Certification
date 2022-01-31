@@ -27,7 +27,7 @@ Blockchain Architecture Training. -- coming soon
 
 
 
-Cooking Certificates if you interest. I'm a Michelin star * Chef. :)
+Cooking Certificates if you're interested. I'm a Michelin star * Chef. :)
 
 
 
@@ -39,6 +39,8 @@ https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
 
 Oh perhaps my new hobby is riding horse I'm working on getting my equestrian skill certified ;)
+
+https://www.pbrcride.com/ 
 
 
 
