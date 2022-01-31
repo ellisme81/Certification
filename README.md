@@ -29,7 +29,7 @@ Blockchain Architecture Training. -- coming soon
 
 
 
-Cooking Certificates if you're interested. I'm a Michelin star * -- ONE star Michelin Chef only :)
+Cooking Certificates if you're interested. I'm a Michelin * star Chef -- ONE star only :)
 
 
 
