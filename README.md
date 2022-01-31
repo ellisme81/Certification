@@ -51,8 +51,7 @@ Oh my new hobby is riding horse and I'm working on getting my basic equestrian s
 https://www.pbrcride.com/ 
 
 
-Some more free time spending on building program at (in progress)
-South Bay Association of Chambers of Commerce
+More free time spending on building program at South Bay Association of Chambers of Commerce (in progress)
 https://www.torrancechamber.com/
 
 
