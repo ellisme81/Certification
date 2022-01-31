@@ -56,6 +56,6 @@ https://www.torrancechamber.com/
 
 
 
-THe most important things, I'm Fully vaccinated COVID-19
+THe most important thing, I'm fully vaccinated COVID-19
 
 
