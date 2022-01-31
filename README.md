@@ -1,7 +1,7 @@
 # Certification
 Certification. - 
 
-FYI, *I don't Code* anymore and I LOVE scaling business using innovation technology!
+FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology!
 
 
 
