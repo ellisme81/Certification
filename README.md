@@ -32,10 +32,13 @@ Cooking Certificates if you interest. I'm a Michelin star * Chef. :)
 
 
 And I listen to the music too, incase you want to follow me on YouTube Music. 
+
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
 
 
+
+Oh perhaps my new hobby is riding horse I'm working on getting my equestrian skill certified ;)
 
 
 
