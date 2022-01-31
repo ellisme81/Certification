@@ -20,7 +20,7 @@ FYI, *I don't Code* anymore and I LOVE Technology!
 [GCPBigDataMachineLearning.pdf](https://github.com/ellisme81/Certification/files/7967228/GCPBigDataMachineLearning.pdf)
 
 
-Intro to Tensor Flow and too many GCP Cloud ML and Advance Cert to be included. 
+Intro to Tensor Flow and too many GCP Cloud ML and Advance GCP ML Cert to be included. 
 
 
 
