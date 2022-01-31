@@ -39,7 +39,7 @@ Cooking Certificates if you're interested. I'm a Michelin * starred Chef -- ONE 
 
 
 
-And I listen to the music too, in case you want to follow me on YouTube Music. 🎸
+And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
@@ -52,7 +52,7 @@ Oh my new hobby is riding horse and I'm working on getting my basic equestrian s
 https://www.pbrcride.com/ 
 
 
-More free time spending on building program at South Bay Association of Chambers of Commerce (in progress)
+More free time spending on building program at South Bay Association of Chambers of Commerce (in progress) 
 https://www.torrancechamber.com/
 
 
