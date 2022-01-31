@@ -1,5 +1,7 @@
 # Certification
-Certification. - FYI, *I don't Code* anymore and I LOVE Technology!
+Certification. - 
+
+FYI, *I don't Code* anymore and I LOVE Technology!
 
 
 
