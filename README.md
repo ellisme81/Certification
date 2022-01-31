@@ -1,6 +1,6 @@
 # Certification
-Certification. - 
 
+Certification in Cloud Technologies, AI and ML and also Business with Finance for Strategies. 
 FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology!
 
 
