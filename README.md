@@ -25,7 +25,7 @@ Intro to Tensor Flow and too many GCP Cloud ML and Advance GCP ML Cert to be inc
 
 
 
-Blockchain Architecture Training. -- coming soon
+[Elis  Tannady Blockchain Architecture.pdf](https://github.com/ellisme81/Certification/files/8129206/Elis.Tannady.Blockchain.Architecture.pdf)
 
 
 
@@ -42,7 +42,6 @@ Cooking Certificates if you're interested. I'm a Michelin * starred Chef -- ONE 
 And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
-
 
 
 
