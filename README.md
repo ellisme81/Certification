@@ -1,6 +1,6 @@
 # Certification
 
-Certification in Cloud Technologies, AI and ML and also Business with Finance for Strategies. 
+Certification in Cloud Technologies on AI and ML and also Business with Finance for Strategies. 
 
 FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology partnering with Seasoned Sr Leadership or C Executives.
 
@@ -49,10 +49,6 @@ https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 Oh my new hobby is riding horse and I'm working on getting my basic equestrian skill certified 🏇
 
 https://www.pbrcride.com/ 
-
-
-More free time spending on building program at South Bay Association of Chambers of Commerce (in progress) 
-https://www.torrancechamber.com/
 
 
 
