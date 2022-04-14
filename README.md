@@ -2,7 +2,7 @@
 
 Certification in Cloud Technologies on AI and ML and also Business with Finance for Strategies. 
 
-FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology partnering with Seasoned Sr Leadership or C Executives.
+FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology partnering with Seasoned Sr Leadership (SVP or VP) or C Executives.
 
 
 
