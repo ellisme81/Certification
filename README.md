@@ -5,7 +5,7 @@ Certification in Cloud Technologies on AI and ML and also Business with Finance 
 FYI, *I don't Code anymore* and I LOVE scaling business using innovative technology partnering with Seasoned Sr Leadership (SVP or VP) or C Executives in the product driven companies where we see products as the oil of driving the growth of the business.
 
 A broadly focused Engineering management with entrepreneur agility mindset, adaptability that is eager to learn, grow and contribute to the company. 
-I love working in the company that values innovation with the experiment and learning environment in the highly performing organizations where our focus as a leader is not only serving the shareholders but also to build and co-create the multi generational company, inclusion and honor to *SERVE the customers, stakeholders, shareholders, and social conscious in environment (ESG)*. 
+I love working in the company that values innovation with the experiment and learning environment in the highly performing organizations where our focus as a leader is not only serving the shareholders but also to build and co-create the multi generational company products, inclusion and honor to *SERVE the customers, stakeholders, shareholders, and social conscious in environment (ESG)*. 
 
 
 [BigDataonAWS.pdf](https://github.com/ellisme81/Certification/files/7967179/BigDataonAWS.pdf)
@@ -27,12 +27,13 @@ Cooking Certificates if you're interested. I'm a Michelin * starred Chef -- ONE 
 And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
+https://www.youtube.com/channel/UCrVHgK9AfVMm6HpnvDr97QQ/playlists
+
+Open Sea and NFT - Wallet to be added later
+https://opensea.io/artbyAliceMe
 
 Oh my new hobby is riding horse and I'm working on getting my basic equestrian skill certified 🏇
-
 https://www.pbrcride.com/ 
-
-
 
 THe most important thing, I'm fully vaccinated COVID-19
 
