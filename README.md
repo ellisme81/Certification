@@ -17,7 +17,7 @@ FYI, *I don't Code anymore*
 And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
-OpenSea - Added Wallet and sell NFT Matic Polygon on OpenSea
+OpenSea NFT
 https://opensea.io/artbyAliceMe
 
 Oh my new hobby is riding horse and I'm working on getting my basic equestrian skill certified 🏇
