@@ -2,7 +2,7 @@
 
 Certification in Cloud Technologies on AI and ML and also Business with Finance for Strategies. 
 
-FYI, *I don't Code anymore* and I LOVE scaling business by building products using innovative technology partnering with Seasoned Sr Leadership (SVP or VP) or C Executives.
+FYI, *I don't Code anymore* 
 
 [BigDataonAWS.pdf](https://github.com/ellisme81/Certification/files/7967179/BigDataonAWS.pdf)
 
