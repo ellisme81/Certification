@@ -4,15 +4,33 @@ Certification in Cloud Technologies on AI and ML and also Business with Finance 
 
 FYI, *I don't Code anymore* 
 
-[BigDataonAWS.pdf](https://github.com/ellisme81/Certification/files/7967179/BigDataonAWS.pdf)
+[CertificateAdvanceArchitectingAWS.pdf](https://github.com/ellisme81/Certification/files/9383709/CertificateAdvanceArchitectingAWS.pdf)
 
-[AdvanceArchitectingAWS.pdf](https://github.com/ellisme81/Certification/files/7967213/AdvanceArchitectingAWS.pdf)
+[CertificateBigDataonAWS.pdf](https://github.com/ellisme81/Certification/files/9383712/CertificateBigDataonAWS.pdf)
 
-[KubernetesNative.pdf](https://github.com/ellisme81/Certification/files/8853940/KubernetesNative.pdf)
+[CertificateKubernetesEssential.pdf](https://github.com/ellisme81/Certification/files/9383720/CertificateKubernetesEssential.pdf)
+
+[CertificateKubernetesOperation.pdf](https://github.com/ellisme81/Certification/files/9383721/CertificateKubernetesOperation.pdf)
+
+[CertificateOfArchAccelerator.pdf](https://github.com/ellisme81/Certification/files/9383722/CertificateOfArchAccelerator.pdf)
+
+[CertificateOfDevelopingAWS.pdf](https://github.com/ellisme81/Certification/files/9383755/CertificateOfDevelopingAWS.pdf)
+
+[CertificateOfDevOps.pdf](https://github.com/ellisme81/Certification/files/9383757/CertificateOfDevOps.pdf)
+
+[CertificateOfGKSageMaker.pdf](https://github.com/ellisme81/Certification/files/9383759/CertificateOfGKSageMaker.pdf)
+
+[CertificateOfGKSecurityEng.pdf](https://github.com/ellisme81/Certification/files/9383765/CertificateOfGKSecurityEng.pdf)
+
+[CertificatePlanDesignDBCertification.pdf](https://github.com/ellisme81/Certification/files/9383768/CertificatePlanDesignDBCertification.pdf)
 
 [GCPBigDataMachineLearning.pdf](https://github.com/ellisme81/Certification/files/7967228/GCPBigDataMachineLearning.pdf)
 
 [Elis  Tannady Blockchain Architecture.pdf](https://github.com/ellisme81/Certification/files/8129206/Elis.Tannady.Blockchain.Architecture.pdf)
+
+[CertificateDeepLearning.pdf](https://github.com/ellisme81/Certification/files/9383715/CertificateDeepLearning.pdf)
+
+[CertificateGKAzureSolution.pdf](https://github.com/ellisme81/Certification/files/9383719/CertificateGKAzureSolution.pdf)
 
 And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
