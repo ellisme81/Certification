@@ -32,6 +32,9 @@ FYI, *I don't Code anymore*
 
 [CertificateGKAzureSolution.pdf](https://github.com/ellisme81/Certification/files/9383719/CertificateGKAzureSolution.pdf)
 
+Audit on ML/DL Class on Coursera
+https://www.coursera.org/specializations/deep-learning?page=4
+
 And I listen to the music too, in case you want to follow me on YouTube Music. 🎸 🎶
 https://music.youtube.com/browse/UCrVHgK9AfVMm6HpnvDr97QQ
 
