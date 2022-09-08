@@ -28,8 +28,6 @@ FYI, *I don't Code anymore*
 
 [Elis  Tannady Blockchain Architecture.pdf](https://github.com/ellisme81/Certification/files/8129206/Elis.Tannady.Blockchain.Architecture.pdf)
 
-[CertificateDeepLearning.pdf](https://github.com/ellisme81/Certification/files/9383715/CertificateDeepLearning.pdf)
-
 [CertificateGKAzureSolution.pdf](https://github.com/ellisme81/Certification/files/9383719/CertificateGKAzureSolution.pdf)
 
 Audit on ML/DL Class on Coursera
