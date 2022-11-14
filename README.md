@@ -2,7 +2,12 @@
 
 Certification in Cloud Technologies on AI and ML and also Business with Finance for Strategies. 
 
-FYI, *I don't Code anymore* 
+FYI, *I don't Code anymore* but I've 20+ years of experiences in Technology and Business in US and APAC, 
+leading technology and business organization partnering with key C Seasoned Technology Executives 
+and CEO in one of the largest Tobacco and Cigarette company in SEA and Technology Industries in Los Angeles.
+Manage P&L with 200+ employees. 
+
+https://www.linkedin.com/in/elistannady/
 
 [CertificateAdvanceArchitectingAWS.pdf](https://github.com/ellisme81/Certification/files/9383709/CertificateAdvanceArchitectingAWS.pdf)
 
@@ -45,7 +50,6 @@ https://www.pbrcride.com/
 THe most important thing, I'm fully vaccinated COVID-19
 
 ![Elis Technical Skills Broadly Focused on Infrastructure Distributed Systems](https://user-images.githubusercontent.com/91448179/200970994-aa964528-117e-452b-b954-9894a339d7f0.png)
-
 
 ![Big Concept on Modern approach of ML   DL](https://user-images.githubusercontent.com/91448179/201775677-f1db3c77-a71a-4492-a79a-1d092d71b880.png)
 
