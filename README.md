@@ -46,5 +46,6 @@ THe most important thing, I'm fully vaccinated COVID-19
 
 ![Elis Technical Skills Broadly Focused on Infrastructure Distributed Systems](https://user-images.githubusercontent.com/91448179/200970994-aa964528-117e-452b-b954-9894a339d7f0.png)
 
+![Technical Skills Broadly Focused and Avg 5 yrs Experience Skills](https://user-images.githubusercontent.com/91448179/201760103-2b91c533-120a-44bd-bac0-b668bbfee974.png)
 
 
