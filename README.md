@@ -5,7 +5,7 @@ Certification in Cloud Technologies on AI and ML and also Business with Finance 
 FYI, *I don't Code anymore* but I've 20+ years of experiences in Technology and Business in US and APAC, 
 leading technology and business organization partnering with key C Seasoned Technology Executives 
 and CEO in one of the largest Tobacco and Cigarette company in SEA and Technology Industries in Los Angeles.
-Manage P&L with 200+ employees. 
+Manage P&L with direct reports of 200+ employees. 
 
 https://www.linkedin.com/in/elistannady/
 
